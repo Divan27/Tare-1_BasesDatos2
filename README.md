@@ -11,7 +11,7 @@ Finalizado.
 
 ## Enlace del video
 
-[(https://youtu.be/qk22P7i32U0)]
+(https://youtu.be/qk22P7i32U0)
 
 ---
 
